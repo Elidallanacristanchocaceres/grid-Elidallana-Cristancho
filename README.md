@@ -19,6 +19,11 @@
 
 ![Grabación-2024-08-05-164059](https://github.com/user-attachments/assets/c384f558-21c4-4e8e-a90a-37fae32d9d62)
 
-# 📱Contacto
-   Para cualquier pregunta o comentario sobre el proyecto, por favor contacta con [Elidallana Cristancho] a través de [cristanchodayana062017@gmail.com].
+____
+### 📬 Contacto
+- 📧 Correo electrónico: cristanchodayana062017@gmail.com
+
+- 💼 LinkedIn: [Elidallana Cristancho Caceres](https://www.linkedin.com/in/elidallanacristancho/)
+
+¡Gracias por ser parte de esta aventura! 🚀✨
 
